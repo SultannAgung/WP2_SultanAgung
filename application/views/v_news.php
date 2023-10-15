@@ -12,6 +12,10 @@
 <p>Dengan begitu, pembalap asal Spanyol tersebut bakal berduet dengan adiknya, Alex Marquez, yang sudah lebih dulu bergabung dengan tim arahan Nadia Padovani itu. Dia akan menggantikan Fabio Di Giannantonio.</p>
 <p>Lebih lanjut lagi, Honda rupanya meminta Marquez untuk tetap bungkam mengenai masa depannya hingga akhir musim tahun ini. Sedangkan konferensi pers khusus tersebut jika tidak ada perubahan akan dihadiri oleh Alex Marquez, Augusto Fernandez , Enea Bastianini, dan pembalap Moto2 Pedro Acosta.</p>
 <p>Marquez pertama kali debut dengan tim asal Jepang tersebut pada 2013 silam usai naik kelas dari Moto2. Selama menunggangi Repsol Honda, Marc Marquez telah mencatatkan rekor fantastis, yakni enam kali juara dunia MotoGP pada 2013, 2014, 2016,2017, 2018, dan 2019.</p>
-    </div>
+<p>Sebelumnya, Marc Marquez telah menyatakan berpisah dengan Honda pada akhir musim Kejuaraan Dunia MotoGP 2023 ini.</p>
+<p>“Honda Racing Corporation (HRC) dan Marc Marquez telah sepakat untuk mengakhiri kontrak empat tahun mereka sebelum waktunya pada akhir musim Kejuaraan Dunia MotoGP 2023,” bunyi keterangan resmi HRC.</p>
+<p>Marquez telah mengucapkan terima kasih kepada Honda atas kepercayaan yang diberikan selama sebelas tahun.</p>
+<p>“Terima kasih untuk perjalanan luar biasa ini,” ucap Marc Marquez di media sosial X pribadinya.</p>
+<p>“Kami berbagi momen tak terlupakan: 6 gelar juara dunia, 5 kemenangan triple crown, 59 kemenangan, 101 podiun, dan 64 pole,” lanjut dia.</p>
 </body>
 </section>
